@@ -1,0 +1,6 @@
+- 👋 Hi, I am Coetivy
+- 👀 I am here to tell you all about the Seychelles 
+- Should you know anything about the Seychelles please let me know
+- 💞️ I’m looking to collaborate on any information about the Seychelles 
+- 📫 You can reach me on seymahe@protonmail.com 
+--->
